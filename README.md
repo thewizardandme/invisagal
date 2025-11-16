@@ -37,7 +37,7 @@ hamilton FANS!! LOVE U GUYSSS HII GIGGLEEE
 <img width="408" height="102" alt="4ls1dv" src="https://github.com/user-attachments/assets/7bb581f7-b699-421c-85f7-5a8c270ba0e4" />
 
 
-i am an ageregressor. although it doesnt happen much, i still do. IWECARE/CAUTION if youre a friend or a stranger, i am very vulnerable in this state and would be best if you treated me with extra care and respect. i am very friendly!!!! i LOVEE c*h and kisses. i am kinda clingy.. so... be careful!!!! giggle. also,,, i like to gift ponies to my friends! ask for a pony, yOULL GET ONE!!! (if a friend of coursseee.)
+i am an ageregressor. although it doesnt happen much, i still do. IWECARE/CAUTION if youre a friend or a stranger, i am very vulnerable in this state and would be best if you treated me with extra care and respect. i am very friendly!!!! i LOVEE c+h and kisses. i am kinda clingy.. so... be careful!!!! giggle. also,,, i like to gift ponies to my friends! ask for a pony, yOULL GET ONE!!! (if a friend of coursseee.) i may go silent sometimes, nvuf or svuf. but i love to chat!!! never dni unless stated. i *love* c+h with my friends and strangers! if i make jokes / comments that make u uncomfortable, pls tell me. i would not want you mad at me for so long without u telling me!1 im so nicee i swear, i can be jokingly mean at times. if that bothers you i will try to refrain from making those jokes. I CARE DEEPLY ABOUT MYFRIENDS!! if ur mean to them i will be mean back.
 
 <img width="1280" height="327" alt="923gly" src="https://github.com/user-attachments/assets/b1067bdf-b73e-497b-b42b-6b9573172272" />
 
@@ -66,7 +66,6 @@ i am an ageregressor. although it doesnt happen much, i still do. IWECARE/CAUTIO
 <img width="99" height="56" alt="tumblr_9b6df472db9f2428e993428760459e6d_74a171d7_100" src="https://github.com/user-attachments/assets/3339e867-3352-41b5-8604-3fd321e741f8" />
 <img width="99" height="55" alt="tumblr_1dd23c96d5605af269ea819481d28e42_1d0c5176_100" src="https://github.com/user-attachments/assets/e642bd6b-9d00-4a82-b5a9-7148d11cce79" />
 <img width="99" height="56" alt="tumblr_c70148f8458e6191771cf3222a6a4e09_ba95f540_100" src="https://github.com/user-attachments/assets/b3735287-dd6e-4405-bcb3-1a2791d92647" />
-<img width="99" height="56" alt="dagsa7i-32a8e277-f8be-4f2d-bc17-92d06723b8c3" src="https://github.com/user-attachments/assets/8ede3a7d-eda7-4300-9b2f-c9cd2ec24224" />
 <img width="99" height="56" alt="tumblr_b5f5ccc16ba708633923d7a88fe07d58_3bef35f4_100" src="https://github.com/user-attachments/assets/bfdde174-79bb-47fc-b1fb-f247b0d3ca22" />
 <img width="99" height="56" alt="tumblr_9ab0aa3160dce59280d7cdae49f54d9e_22e70cbf_100" src="https://github.com/user-attachments/assets/0be2dac0-dad5-433a-abfc-31ac9c63935e" />
 <img width="99" height="56" alt="d35fg2i-7f24d191-ffc3-430d-abf4-45353a78971d" src="https://github.com/user-attachments/assets/ef2d429d-42f5-4c16-8d72-e2c51a723529" />
@@ -79,5 +78,17 @@ i am an ageregressor. although it doesnt happen much, i still do. IWECARE/CAUTIO
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35c0c662-014e-4c7d-92dc-1c1a67d7d45f" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c6498170-d37e-4ff5-85cb-6802afd91993" />
 <img width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/df9a5c03-5c64-4221-990f-96f27c20aaa0" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/c919c369-e434-4a02-9954-a3ebd27dc211" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6453ef33-4fcc-443f-bc09-a0d72b6675aa" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d41a4898-6c47-4258-8f96-df447feac7bf" />
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/8331257b-7194-47b0-99cd-598c5a170637" />
+
+<img width="1280" height="175" alt="Untitled20-20240906150132" src="https://github.com/user-attachments/assets/1eeceeb5-80eb-4ad2-85b0-13c46cc2e53e" />
+
+	FRIENDOS?!?!
+<img width="1280" height="175" alt="Untitled20-20240906150205" src="https://github.com/user-attachments/assets/09b80fb4-1cb9-45f3-beb7-b68410687064" />
+
+<img width="267" height="144" alt="Screenshot 2025-11-16 12 15 46 PM" src="https://github.com/user-attachments/assets/55069540-da3d-4c95-a3ee-03f4e3137b80" />
+the cuties ever?!!!
 
 <img width="1280" height="175" alt="Untitled20-20240906150132" src="https://github.com/user-attachments/assets/1eeceeb5-80eb-4ad2-85b0-13c46cc2e53e" />
