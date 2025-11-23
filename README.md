@@ -1,7 +1,7 @@
 ## hello! hiii im rue
          invisigal , severus snape , elphaba irl. dbls dni
        hi edward!!! hello hii..... best viewed on computer ok!!
-<img width="1280" height="327" alt="923gly" src="https://github.com/user-attachments/assets/b63e4115-9ee9-4f9e-9027-661834c027f4" />
+
 
 
 ### HELLO!!!! hai i am rue, i am an adult (18)
